@@ -6,7 +6,7 @@
 点这里可以康康我们的网站--->[THR主页](https://secretletter.github.io/THR/ "THR主页")
 ***
 teamhunter，简称THR，~~在神比策划MGLG的带领下逐渐成为一个屑工作室~~  
-目前工作室正在制作undertale－背叛者（AU） 
-现工作室正在~~招收更多外星人并消灭人类暴政~~招人,有意者加工作群:1146842291  
+目前工作室正在制作undertale－背叛者（AU）   
+现工作室正在~~招收更多外星人并消灭人类暴政~~招人,有意者加工作群:1146842291   
 ![THR群二维码](https://i0.hdslb.com/bfs/album/09a242cbd70013593063817e1c8ce71dad8630b7.png "THR群二维码")
 ***
